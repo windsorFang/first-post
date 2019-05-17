@@ -1,3 +1,3 @@
-# first-post
+﻿# first-post
 this is my first post,just for testing.
-傻逼哦
+devil may cry.
